@@ -2,7 +2,9 @@
 - 👀 I’m interested in livevcode sharing  and exploring the universe
 - 🌱 I’m currently learning sardine livecode tool
 - 💞️ I’m looking to collaborate on livecode event music hydra  foxdot 
-- 📫 How to reach me instra github 
+- 📫 How to reach me insta github
+- https://kreasevision.bandcamp.com/track/log1
+- https://soundcloud.com/krease_vision/log1
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
